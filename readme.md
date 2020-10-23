@@ -1,0 +1,3 @@
+For newbies to Indian food, tandoori style cooking is when marinated ingredients or Indian flatbreads, in this case paneer cubes, have been threaded on a skewer and grilled in a tandoor, which is a cylindrical clay oven.
+
+This produces a subtle charcoal flavor and is a popular way of cooking in Indian restaurants. In this homemade version we grill the paneer skewers in the oven, although you can even bake them. Most of the times for tikka recipes, the yogurt-based marinade is made which is unique to the tandoori style grilling.
